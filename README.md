@@ -1,1 +1,1 @@
-https://mdakijislam.github.io/ifyoucan/
+https://XDOTDEX.github.io/ifyoucan/
